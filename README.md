@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eman225511
 - 👀 I’m interested in python
-- 📫 How to reach me 'emangod_v2' on discord
+- 📫 How to reach me 'emangod22551' on discord
 
 <!---
 eman225511/eman225511 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
