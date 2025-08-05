@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eman225511
-- 👀 I’m interested in python and playing vide games
+- 👀 I’m interested in python and playing video games
 - 📫 How to reach me 'emangod22551' on discord
 - My [Discord Server](https://discord.gg/W5DgDZ4Hu6)
 
